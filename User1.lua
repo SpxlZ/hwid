@@ -1,5 +1,5 @@
 Dupe_Fluxus
-PetTradingMod
+PetsTradingMod
 SZ_JJK
 ANDYLIKESJAYSONMOUTH
 Enzo5960040
