@@ -11,7 +11,6 @@ Pabdaoitrading
 hiii3898
 PRISONLIFEGODDDD1010
 RYU54326
-robus206BAN
 Robus206
 PetsTradingS1
 Mohhsiwuh
@@ -25,4 +24,3 @@ Radiantei
 Advance_killer2
 cutekid2295
 holichyl
-ArminScripts
